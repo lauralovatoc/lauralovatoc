@@ -1,5 +1,6 @@
-### Oie 👋
+## Oie <h2> 😓
 
-- 🌱 I’m currently learning about computing
-- 📫 How to reach me: lauralovato2007@gmail.com
-- 😄 Pronouns: she/her
+- 🌼 How to reach me: lauralovato2007@gmail.com or @_laura_lovato on instagram
+- 🌼 Pronouns: she/her
+
+- 📚 I study in CTISM-Colégio Técnico Industrial de Santa Maria
