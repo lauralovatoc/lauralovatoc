@@ -17,5 +17,5 @@ Coisas que eu gosto de fazer:
 * 🎬 meus filmes preferidos são "O Castelo Animado" e "As Vantagens de ser Invisível"
 * 🌊 meu lugar preferido é a praia
 * 😻 eu tenho duas gatas
-* 🎂 nasci em 24/05/2007 em Santa Maria
+* 🎂 meu aniversário é 24/05 e eu nasci em Santa Maria
 * 🎨 minhas cores preferidas são azul e verde
