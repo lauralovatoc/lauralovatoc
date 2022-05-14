@@ -20,4 +20,4 @@ Coisas que eu gosto de fazer:
 * 🎂 meu aniversário é 24/05 e eu nasci em Santa Maria
 * 🎨 minhas cores preferidas são azul e verde
 
-![gif]https://i.pinimg.com/originals/bc/77/44/bc7744e068c1e9b6bdeec714fe528796.gif
+![gif](https://i.pinimg.com/originals/bc/77/44/bc7744e068c1e9b6bdeec714fe528796.gif)
