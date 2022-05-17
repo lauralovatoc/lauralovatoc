@@ -20,6 +20,7 @@ Coisas que eu gosto de fazer:
 * 🎂 meu aniversário é 24/05 e eu nasci em Santa Maria
 * 🎨 minhas cores preferidas são azul e verde
 
+### Contato
 ~~~~contato
 lauralovato2007@gmail.com ou
 [instagram](https://www.instagram.com/lauralovatoo/)
