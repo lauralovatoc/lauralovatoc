@@ -7,7 +7,7 @@
 
 Coisas que eu gosto de fazer:
 * 👯 sair com meus amigos
-* 📺 gosto de assistir séries, filmes e animes
+* 📺 assistir séries, filmes e animes
 * 📚 ler livros de fantasia
 * 🎵 escutar música
 
