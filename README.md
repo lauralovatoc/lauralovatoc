@@ -1,4 +1,4 @@
-# Oie 💔
+## Oie 
 
 * 🌼 Contato:lauralovato2007@gmail.com ou [instagram](https://www.instagram.com/lauralovatoo/)
 * 🌼 Pronomes: ela/dela
