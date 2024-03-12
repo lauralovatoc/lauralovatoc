@@ -1,4 +1,4 @@
-## Oie 
+## Oie 🌼
 
 Contato: por email: lauralovato2007@gmail.com ou pelo [instagram](https://www.instagram.com/lauralovatoo/) 🌼
 
