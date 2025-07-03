@@ -2,7 +2,7 @@
 
 * Técnica em Informática para Internet pelo Colégio Técnico Industrial de Santa Maria (CTISM-UFSM)
 * Estudante de Ciência da Computação (UFSM)
-
+***
 
 ### Linguagens de programação
 ![C](https://img.shields.io/badge/C-00599C?style=for-the-badge&logo=c&logoColor=white)
